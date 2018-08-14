@@ -1,0 +1,2 @@
+# whitepaper
+Follor Cryptocurrency Whitepaper 
